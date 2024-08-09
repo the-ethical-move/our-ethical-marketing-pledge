@@ -17,3 +17,5 @@ Together, we are making the ethical move for transparent, responsible and honest
 Set up time to go through your touch points and make a plan for how you can make them more inclusive and respectful. Print and hang your pledge poster as a reminder (and to have the words on hand). Maybe put a regular date in your calendar for a review where you can take stock of how far you’ve come and what’s next. These are the things I’m doing, anyway. How you go about this is completely up to you!
 
 Please reach out to us if you’re unsure what any of the language means or what to do next. **This pledge is designed for us to explore what ethical marketing can be, together.**
+
+**Thank you for taking a stand with us and welcome to The Ethical Move!**
